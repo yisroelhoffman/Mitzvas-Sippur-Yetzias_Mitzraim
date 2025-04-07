@@ -1,2 +1,2 @@
-# Mitzvas-Sippur-Yetzias_Mitzraim
-Mitzvas-Sippur-Yetzias_Mitzraim
+# Mitzvas-Sippur-Yetzias-Mitzraim
+Mitzvas-Sippur-Yetzias-Mitzraim
